@@ -3,4 +3,4 @@ Primer_repositoriCTC
 
 Bon dia!
 
-No sé massa què tinc entremans però egur que ho acabo esbrinant.
+No sé massa què tinc entremans però segur que ho acabo esbrinant.
